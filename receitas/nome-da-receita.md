@@ -29,8 +29,8 @@ Para a massa:
 10. Leve ao forno por aproximadamente 40 minutos ou até que esteja assado.
 11. Para a cobertura, coloque a manteiga, o chocolate em pó, o açúcar e o leite em uma panela.
 12. Leve ao fogo baixo, mexendo até engrossar.
-13. Retire o bolo do forno e espere esfriar um pouco.
-14. Despeje a cobertura de chocolate sobre o bolo.
+13. Retire o bolo do forno.
+14. Despeje a cobertura de chocolate sobre o bolo morno.
 15. Sirva e aproveite!
 
  Rendimento
